@@ -1,4 +1,3 @@
-# java
-for java
-[`Tutorial`](https://shortid.co/XEKQ7)
+# 
+[`Pencet di sini`](https://shortid.co/XEKQ7)
 
